@@ -1,2 +1,2 @@
-me : stupid 
+bad guy 
 
